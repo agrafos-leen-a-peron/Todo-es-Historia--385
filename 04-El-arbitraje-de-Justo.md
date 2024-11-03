@@ -19,3 +19,21 @@ Es decir que el Capitan esta haciendo una apuesta politica, que le dara resultad
 En el penultimo parrafo de la carta Peron critica una medida del Gobierno Provisional, por la cual se otorga un prestamo a los oficiales que tenian deudas y no podian pagarlas.
 Como dice, la medida habia generado muchas criticas:
 
+> Entre las numerosas medidas tomadas sobre cuestiones de Oficiales y que han perjudicado mas el concepto del actual gobierno,
+> es un prestamo de dinero que se ha hecho a los Oficiales que tenian deudas.
+> Con ello, aun cuando la intencion es fundamentalmente buena, se dara lugar, como ya se sienten, a comentarios muy poco edificantes para el cuadro de Oficiales.
+> Los enemigos del gobierno y de la revolucion tendran en eso mucho paño que cortar.
+> No me explico como el General Uriburo ha permitido tal cosa y como no ha tenido a nadie cerca de el que lo aconseje.
+
+Termina la carta diciendo:
+
+> En fin, mi Teniente Coronel, usted estara alli tan feliz que no quiero hacerle llegar mis tristezas de la tierra,
+> ya que uno en tierra ajena no puede sino tener recuerdos felices de la propia
+
+Luego agrega:
+> Con mis mejores votos por una hermosa estadia en ese gran pais,
+> reciba las expresiones de mi mejor afecto.
+
+Y firma: _Juan Peron, Cap._.
+
+
